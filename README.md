@@ -1,1 +1,1 @@
-# Privacy-policy
+# Privacy policy of Motivation Authority
